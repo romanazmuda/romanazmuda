@@ -1,5 +1,3 @@
-👋🏼 Hi, I’m twenty-two years old students at Wrocław University of Science and Technology and also at University of Economics.
-I’m interested in traveling, exploring world and culture. I'm in love with all kinds of sport's activity, for example running, playing squash, snowboarding, hiking and swimming.
-Currently i am exploring accounting and data analyst, nowadays writing bachelor's thesis on Benford Law and looking for a perspecive job as junior financial analyst and similar position.
-If u want to reach me and maybe ask about cooperation, please write to romana1806@gmail.com. I am grateful for all of messages.
+👋🏼 Hi, I’m twenty-four years old students from Poland. Currently studying at UC3M as an erasmus exchange student from the University of Economics in Wrocław.
+Constantly striving to deepen her knowledge of finance, accounting and controlling. If u want to reach me and maybe ask about cooperation, please write to romana.zmuda@gmail.com. I am grateful for all of messages.
 
